@@ -9,5 +9,5 @@ As I'm still learning I would always appreciate feedback on anything that I publ
 So, if you'd like to contact me I have all my social-links on [my Linktree](https://linktr.ee/mocbuildercodingcreations). 
 
 
-> THERE MAY COME A DAY WHEN WE'LL FIX THAT ONE BUG, BUT IT IS NOT THIS DAY!
+> THERE MAY COME A DAY WHEN WE'LL FIX THAT ONE BUG, BUT IT IS NOT THIS DAY! !>
                     Aragorn if he was a me, probably.
