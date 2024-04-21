@@ -9,7 +9,7 @@ As I'm still learning I always appreciate feedback on anything that I publish, a
 So, if you'd like to contact me I have all my social-links on [my Linktree](https://linktr.ee/mocbuildercodingcreations). 
 >________________________________
 >
-> *There may come a day when we'll fix that bug, but it is not this day!*
+> *A day may come when we'll fix that bug, but it is not this day!*
 > 
 >Aragorn as coder, probably
 >
