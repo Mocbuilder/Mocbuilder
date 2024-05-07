@@ -1,4 +1,4 @@
-## Mocbuilder (from Mocbuilder Coding Creations)
+## Mocbuilder
 
 Hi, im Mocbuilder.
 
